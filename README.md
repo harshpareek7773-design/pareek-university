@@ -1,0 +1,2 @@
+# pareek-university
+Admittion Open
